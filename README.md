@@ -10,5 +10,8 @@ https://www.youtube.com/watch?v=4NbN80NPCVAhttps://www.youtube.com/watch?v=4NbN8
 
 https://www.brit.co/diy-maps/
 
+https://www.youtube.com/watch?v=TZAsOQiZMEs&list=PLZ9FIKYeLkmjzDs3lu-hqkTmLxKCKG6Ds&index=1
+
+https://www.youtube.com/watch?v=RbxxFg4HoPI&index=3&list=PLZ9FIKYeLkmjzDs3lu-hqkTmLxKCKG6Ds
 
 http://www.progonos.com/furuti/MapProj/Normal/ProjPoly/Foldout/foldout.html
